@@ -1,4 +1,3 @@
-
 $$\color{white}\textrm{"I remember a shadow, living in the shade of your greatness."}$$
 
 $$\color{white}\textrm{loki ,, ــــــــــــــــــ ,, Irish }$$
