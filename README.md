@@ -1,6 +1,6 @@
 $$\color{white}\textrm{"I remember a shadow, living in the shade of your greatness."}$$
 
-$$\color{white}\textrm{loki ,, ــــــــــــــــــ ,, Irish }$$
+$$\color{white}\textrm{fictkin ,, ــــــــــــــــــ ,, Irish }$$
 
 <p align="center">
    <img width="300" src="https://files.catbox.moe/vz9l3x.gif"
