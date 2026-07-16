@@ -1,6 +1,6 @@
 $$\color{white}\textrm{"I remember a shadow, living in the shade of your greatness."}$$
 $$\color{grey}\textrm{(I live here I'm not diaspora but yous are cool too) }$$
-$$\color{white}\textrm{fictkin ,, ــــــــــــــــــ ,, Irish }$$
+$$\color{white}\textrm{Irish ,, ــــــــــــــــــ ,, fictkin }$$
 
 <p align="center">
    <img width="300" src="https://files.catbox.moe/vz9l3x.gif"
