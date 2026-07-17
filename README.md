@@ -3,7 +3,7 @@ $$\color{grey}\textrm{(I live here I'm not diaspora but yous are cool too) }$$
 $$\color{white}\textrm{Irish ,, ــــــــــــــــــ ,, fictkin }$$
 
 <p align="center">
-   <img width="300" src="https://files.catbox.moe/vz9l3x.gif"
+   <img width="300" src="https://files.catbox.moe/3fvx7q.jpeg"
 </p>
 
 $$\color{white}\textrm{,, ــــــــــــــــ ,,}$$<p align="center">
