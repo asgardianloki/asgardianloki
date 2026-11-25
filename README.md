@@ -1,5 +1,5 @@
 $$\color{white}\textrm{"I remember a shadow, living in the shade of your greatness."}$$
-$$\color{grey}\textrm{(I live here I'm not diaspora but yous are cool too!) }$$
+$$\color{grey}\textrm{ Once upon a time… }$$
 $$\color{white}\textrm{Irish ,, ــــــــــــــــــ ,, fictkin }$$
 
 <p align="center">
